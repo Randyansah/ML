@@ -1,0 +1,1 @@
+A drug is any chemical substance that causes a change in an organism's physiology or psychology when consumed.[1][2] Drugs are typically distinguished from food and substances that provide nutritional support. Consumption of drugs can be via inhalation, injection, smoking, ingestion, absorption via a patch on the skin, suppository, or dissolution under the tongue.
